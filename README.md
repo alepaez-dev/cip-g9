@@ -1,2 +1,2 @@
 # cip-g9
-5 a 17 Julio Lun a Vier
+5 a 14 Julio Lun a Vier
